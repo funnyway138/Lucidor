@@ -207,4 +207,4 @@ Lucidor is offered as a **full free version** with all features and updates incl
 Download Lucidor now and immerse yourself in the world of eBooks today! Enjoy reading with the best eBook reader on the market.
 
 ---
-**Last updated:** 2026-09-29 16:13:08 UTC
+**Last updated:** 2026-09-29 21:08:19 UTC
